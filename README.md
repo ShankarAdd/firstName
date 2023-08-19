@@ -1,1 +1,1 @@
-# My name Shankar Raibagi
+# My name is Shankar Raibagi
